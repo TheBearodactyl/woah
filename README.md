@@ -8,7 +8,7 @@
 ## About me:
 - I'm on the autism spectrum
 - I love to break social norms :3
-- Im an asexual/omniromantic/pangender furry who takes joy in bullying zoophiles
+- Im an asexual/omniromantic/pangender furry who takes joy in bullying zoophiles 😍
 - I'm currently hyperfixated on:
   1) Ricing
   2) Geometry Dash
