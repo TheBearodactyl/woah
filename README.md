@@ -1,4 +1,4 @@
-# 20 DAYS UNTIL MY 17th CAKE DAY :DDDDDDD
+# 16 DAYS UNTIL MY 17th CAKE DAY :DDDDDDD
 
 ## yo,  welcome to my page, where i do random shit just because i can
 > heres a picture of my favorite shape-shifting rat boi/gorl:
