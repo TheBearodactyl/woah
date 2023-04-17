@@ -15,6 +15,7 @@
   3) Reggie the Rat 
   4) DDLC (just Natsuki.)
   5) Rust
+  6) Tweeting at Matt Walsh with segments from the DSM-5
 
 ## And that's about it!
 
