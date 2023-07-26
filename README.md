@@ -7,13 +7,13 @@
 - I'm on the autism spectrum
 - I love to break social norms :3
 - Im an asexual/omniromantic/pangender furry who takes joy in bullying zoophiles 😍
+- I'm 17 years old
 - I'm currently hyperfixated on:
-  1) Ricing
+  1) Reggie the Rat 
   2) Geometry Dash
-  3) Reggie the Rat 
-  4) DDLC (just Natsuki.)
+  3) DDLC (just Natsuki.)
+  4) Celeste
   5) Cult of the Lamb
-  6) Tweeting at Matt Walsh with segments from the DSM-5
 
 ## And that's about it!
 
