@@ -12,8 +12,8 @@
   1) Reggie the Rat 
   2) Geometry Dash
   3) DDLC (just Natsuki.)
-  4) Celeste
-  5) Cult of the Lamb
+  4) Hollow Knight
+  5) Celeste
 
 ## And that's about it!
 
