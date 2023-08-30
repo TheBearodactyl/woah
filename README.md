@@ -6,7 +6,7 @@
 ## About me:
 - I'm on the autism spectrum
 - I love to break social norms :3
-- Im an asexual/omniromantic/pangender furry who takes joy in bullying zoophiles 😍
+- Im an asexual/omniromantic/pangender furry with awesome ass hair.
 - I'm 17 years old
 - I'm currently hyperfixated on:
   1) Reggie the Rat 
