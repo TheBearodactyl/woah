@@ -7,7 +7,7 @@
 - I'm on the autism spectrum
 - I love to break social norms :3
 - Im a demisexual/omni/pangender furry with awesome-as-shit hair.
-- I'm 18 years old
+- I'm 19 years old
 - I'm currently hyperfixated on:
   1) Reggie the Rat 
   2) Geometry Dash
