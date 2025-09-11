@@ -3,20 +3,6 @@
 
 ![Reggie](https://media.tenor.com/bU21Wl_xfU8AAAAC/tf2gplus-gplus.gif)
 
-## About me:
-- I'm on the autism spectrum
-- I love to break social norms :3
-- Im a demisexual/omni/pangender furry with awesome-as-shit hair.
-- I'm 19 years old
-- I'm currently hyperfixated on:
-  1) Reggie the Rat 
-  2) Geometry Dash
-  3) DDLC (just Natsuki.)
-  4) Elden Ring
-  5) Celeste
-
-## And that's about it!
-
 # NOTICE:
 > ALL PROJECTS IN THIS ACCOUNT THAT DO NOT
 > DERIVE FROM, DEPEND ON, OR REIMPLMENENT
